@@ -1,6 +1,6 @@
 ## CHƯƠNG IV. BA-DẬT-ĐỀ
 
-#### THÔNG GIỚI [^1]
+### A - THÔNG GIỚI [^1]
 
 Một thời, đức Bà-già-bà ở trong vườn Ni-câu-luật, Thích-súy-sấu, nước Ca-duy-la-vệ. Bấy giờ, đức Thế tôn dùng những nhơn duyên này (như Tăng) tập hợp Tăng tỳ-kheo, bảo:  
 
@@ -8,279 +8,279 @@ Một thời, đức Bà-già-bà ở trong vườn Ni-câu-luật, Thích-súy-
 
 Muốn nói giới nên nói như vầy:  
 
-#### ĐIỀU 1
+##### ĐIỀU 1
 
 Tỳ-kheo-ni nào, cố ý nói dối, ba-dật-đề.\*[^2]  
 
-#### ĐIỀU 2
+##### ĐIỀU 2
 
 Tỳ-kheo-ni nào, nói lời mạ nhục, ba-dật-đề.\*[^3]  
 
-#### ĐIỀU 3
+##### ĐIỀU 3
 
 Tỳ-kheo-ni nào, nói lời hai lưỡi, (ly gián), ba-dật-đề.\*[^4]  
 
-#### ĐIỀU 4
+##### ĐIỀU 4
 
 Tỳ-kheo-ni nào, ngủ đêm chung nhà với người nam, ba-dật-đề.\*[^5]  
 
-#### ĐIỀU 5
+##### ĐIỀU 5
 
 Tỳ-kheo-ni nào, ngủ đêm chung nhà với người nữ chưa thọ đại giới, quá ba đêm, ba-dật-đề.\*[^6]  
 
-#### ĐIỀU 6
+##### ĐIỀU 6
 
 Tỳ-kheo-ni nào, cùng tụng pháp với người chưa thọ giới, ba-dật-đề.\*[^7]  
 
-#### ĐIỀU 7
+##### ĐIỀU 7
 
 Tỳ-kheo-ni nào, biết người khác có tội thô ác, đem nói với người chưa thọ đại giới, ba-dật-đề, trừ tăng yết-ma.\*[^8][^9]  
 
-#### ĐIỀU 8
+##### ĐIỀU 8
 
 Tỳ-kheo-ni nào, đối với người chưa thọ đại giới, mà tự nói rằng chứng ngộ pháp thượng nhơn rằng: ‹tôi biết điều ấy, tôi thấy điều ấy,› dù là sự thật, ba-dật-đề.\*[^10]  
 
-#### ĐIỀU 9
+##### ĐIỀU 9
 
 Tỳ-kheo-ni nào, nói pháp cho người nam quá năm, sáu lời, ba-dật-đề. Trừ có mặt người nữ có trí.\*[^11]  
 
-#### ĐIỀU 10
+##### ĐIỀU 10
 
 Tỳ-kheo-ni nào, tự tay đào đất hay bảo người đào, ba-dật-đề.\*[^12]  
 
-#### ĐIỀU 11
+##### ĐIỀU 11
 
 Tỳ-kheo-ni nào, phá hoại mầm sống cây cỏ, ba-dật-đề.\*[^13]  
 
-#### ĐIỀU 12
+##### ĐIỀU 12
 
 Tỳ-kheo-ni nào, cố ý nói quanh và gây phiền vị khác, ba-dật-đề.\*[^14]  
 
-#### ĐIỀU 13
+##### ĐIỀU 13
 
 Tỳ-kheo-ni nào, chê bai và nói xấu ‹tri sự Tăng› ba-dật-đề.\*[^15]  
 
-#### ĐIỀU 14
+##### ĐIỀU 14
 
 Tỳ-kheo-ni nào, mang giường nằm, ghế ngồi, hoặc ngọa cụ, nệm ngồi của Tăng bày ra giữa đất trống, hoặc sai người bày. khi bỏ đi không tự mình dọn cất, không bảo người dọn cất, ba-dật-đề.\*[^16]  
 
-#### ĐIỀU 15
+##### ĐIỀU 15
 
 Tỳ-kheo-ni nào, ở trong Tăng phòng, tự mình hoặc bảo người, trải ngọa cụ của Tăng để ngồi, hoặc nằm. khi đi không tự mình dọn cất, ba-dật-đề.\*[^17]  
 
-#### ĐIỀU 16
+##### ĐIỀU 16
 
 Tỳ-kheo-ni nào, đã biết đó là chỗ nghỉ của Tỳ-kheo-ni khác, mình đến sau cố chen vào giữa trải ngọa cụ để ngủ nghỉ, với ý nghĩ rằng: ‹người kia nếu hiềm chật thì sẽ tự tránh đi chỗ khác.› hành động vì nhơn duyên ấy chứ không gì khác, chẳng phải oai nghi, ba-dật-đề.\*[^18]  
 
-#### ĐIỀU 17
+##### ĐIỀU 17
 
 Tỳ-kheo-ni nào, giận hờn, không ưa Tỳ-kheo-ni khác, tự mình lôi kéo họ ra khỏi Tăng phòng, hay bảo người khác lôi ra, ba-dật-đề.\*[^19]  
 
-#### ĐIỀU 18
+##### ĐIỀU 18
 
 Tỳ-kheo-ni nào, ở trên tầng gác, nằm hay ngồi trên giường, ghế bằng chân ráp bị sút ra, ba-dật-đề.\*[^20][^21]  
 
-#### ĐIỀU 19
+##### ĐIỀU 19
 
 Tỳ-kheo-ni nào, biết nước có trùng, mà tự mình dùng hoặc bảo người tưới lên bùn hoặc cỏ, ba-dật-đề.\*[^22]  
 
-#### ĐIỀU 20
+##### ĐIỀU 20
 
 Tỳ-kheo-ni nào, làm phòng xá lớn, cánh cửa, khung cửa sổ, và các đồ trang trí khác, chỉ bảo người lợp tranh, ngang bằng hai, ba lớp. nếu quá, ba-dật-đề.\*[^23]  
 
-#### ĐIỀU 21
+##### ĐIỀU 21
 
 Tỳ-kheo-ni nào, tại trú xứ chỉ cúng một bữa ăn, Tỳ-kheo-ni không bệnh nên ăn một bữa, nếu thọ nhận quá, ba-dật-đề.\*[^24]  
 
-#### ĐIỀU 22
+##### ĐIỀU 22
 
 Tỳ-kheo-ni nào, ăn riêng chúng, ba-dật-đề. Trừ các trường hợp khác là khi bệnh, thời gian may y, thời gian thí y, khi đi đường, khi đi thuyền, khi đại hội, khi sa-môn thí thực. Đó là các trường hợp khác.\*[^25]  
 
-#### ĐIỀU 23
+##### ĐIỀU 23
 
 Tỳ-kheo-ni nào, đến nhà đàn-việt, được ân cần cúng thức ăn, bánh, bột. Tỳ-kheo-ni cần thì nhận hai ba bát, mang về trong chùa, nên chia cho các Tỳ-kheo-ni khác cùng ăn. nếu Tỳ-kheo-ni không bệnh, nhận quá ba bát đem về trong chùa, không chia cho các Tỳ-kheo-ni khác ăn, ba-dật-đề.\*[^26]  
 
-#### ĐIỀU 24
+##### ĐIỀU 24
 
 Tỳ-kheo-ni nào, ăn phi thời, ba-dật-đề.\*[^27]  
 
-#### ĐIỀU 25
+##### ĐIỀU 25
 
 Tỳ-kheo-ni nào, ăn thức ăn thừa cách đêm, ba-dật-đề.\*[^28]  
 
-#### ĐIỀU 26
+##### ĐIỀU 26
 
 Tỳ-kheo-ni nào, không thọ nhận thức ăn và thuốc mà đưa vào miệng, ba-dật-đề. trừ nước và tăm.\*[^29]  
 
-#### ĐIỀU 27
+##### ĐIỀU 27
 
 Tỳ-kheo-ni nào, trước đã nhận lời mời rồi, nhưng trước hay sau bữa ăn đi đến nhà người khác mà không dặn lại tỳ-kheo-ni khác, ba-dật-đề. Trừ trường hợp đặc biệt là khi bệnh, thời gian may y, thời gian thí y. Đó là trường hợp đặc biệt.\*[^30]  
 
-#### ĐIỀU 28
+##### ĐIỀU 28
 
 Tỳ-kheo-ni nào, trong nhà ăn, có vật quý mà cố ngồi nán, ba-dật-đề.\*[^31]  
 
-#### ĐIỀU 29
+##### ĐIỀU 29
 
 Tỳ-kheo-ni nào, trong nhà ăn, có vật quý mà cố ngồi nán, ba-dật-đề.\*[^32]  
 
-#### ĐIỀU 30
+##### ĐIỀU 30
 
 Tỳ-kheo-ni nào, một mình ngồi với người nam tại chỗ trống, ba-dật-đề.\*[^33]  
 
-#### ĐIỀU 31
+##### ĐIỀU 31
 
 Tỳ-kheo-ni nào, nói với tỳ-kheo-ni khác như vầy: ‹Đại tỷ, hãy cùng tôi vào xóm làng, tôi sẽ cung cấp thức ăn cho cô.› Tỳ-kheo-ni kia cuối cùng, không nhờ ai cung cấp cho tỳ-kheo-ni này, lại nói như vầy: ‹Đại tỷ hãy đi chỗ khác, tôi không thích nói chuyện hay ngồi cùng chỗ với cô. Tôi thích ngồi một mình, nói chuyện một mình.› Chỉ với mục đích ấy chứ không gì khác, là cố tình đuổi đi, ba-dật-đề.\*[^34]  
 
-#### ĐIỀU 32
+##### ĐIỀU 32
 
 Tỳ-kheo-ni nào, được thỉnh cầu thọ nhận thuốc bốn tháng, tỳ-kheo-ni không bệnh nên thọ. Nếu quá hạn mà nhận, ba-dật-đề. trừ trường hợp thỉnh thường xuyên, thỉnh tiếp tục, thỉnh chia phần, thỉnh suốt đời.\*[^35]  
 
-#### ĐIỀU 33
+##### ĐIỀU 33
 
 Tỳ-kheo-ni nào, đi xem quân trận, ba-dật-đề. Trừ có nhơn duyên hợp thời.\*[^36]  
 
-#### ĐIỀU 34
+##### ĐIỀU 34
 
 Tỳ-kheo-ni nào, có nhân duyên được phép đến trong quân trại, ngủ lại hai, ba đêm. nếu quá, ba-dật-đề.\*[^37]  
 
-#### ĐIỀU 35
+##### ĐIỀU 35
 
 Tỳ-kheo-ni nào, ngủ trong quân trại hai, ba đêm, hoặc khi xem quân đội diễn tập, hoặc xem thế lực quân đội, quân voi, quân ngựa, ba-dật-đề.\*[^38]  
 
-#### ĐIỀU 36
+##### ĐIỀU 36
 
 Tỳ-kheo-ni nào, uống rượu, ba-dật-đề.\*[^39]  
 
-#### ĐIỀU 37
+##### ĐIỀU 37
 
 Tỳ-kheo-ni nào, đùa giỡn trong nước, ba-dật-đề.\*[^40]  
 
-#### ĐIỀU 38
+##### ĐIỀU 38
 
 Tỳ-kheo-ni nào, dùng ngón tay thọc lét tỳ-kheo-ni khác, ba-dật-đề.\*[^41]  
 
-#### ĐIỀU 39
+##### ĐIỀU 39
 
 Tỳ-kheo-ni nào, không nhận lời can gián, ba-dật-đề.\*[^42]  
 
-#### ĐIỀU 40
+##### ĐIỀU 40
 
 Tỳ-kheo-ni nào, dọa nạt tỳ-kheo-ni khác, ba-dật-đề.\*[^43]  
 
-#### ĐIỀU 41
+##### ĐIỀU 41
 
 Tỳ-kheo-ni mỗi nửa tháng tắm một lần, tỳ-kheo-ni không bệnh nên thọ trì. Nếu quá, ba-dật-đề. Trừ trường hợp đặc biệt là thời gian nóng, khi bệnh, khi làm việc, khi gió lớn và mưa, khi đi xa về. Đó là trường hợp đặc biệt.\*[^44]  
 
-#### ĐIỀU 42
+##### ĐIỀU 42
 
 Tỳ-kheo-ni nào, không bệnh mà cố ý nhóm lửa nơi đất trống để sưởi ấm, hoặc bảo người nhóm, ba-dật-đề. Trừ trường hợp đặc biệt.\*[^45]  
 
-#### ĐIỀU 43
+##### ĐIỀU 43
 
 Tỳ-kheo-ni nào, dấu y bát, tọa cụ, ống đựng kim của tỳ-kheo-ni khác; tự mình dấu, hoặc bảo người dấu, dù chỉ giỡn chơi, ba-dật-đề.\* [^46] [^47]  
 
-#### ĐIỀU 44
+##### ĐIỀU 44
 
 Tỳ-kheo-ni nào, đã tịnh thí y cho tỳ-kheo, Tỳ-kheo-ni, thức-xoa-ma-na, sa-di, sa-di-ni, về sau không hỏi chủ mà lấy lại dùng, ba-dật-đề.\* [^48]  
 
-#### ĐIỀU 45
+##### ĐIỀU 45
 
 Tỳ-kheo-ni nào, nhận được y mới nên dùng một trong ba màu xanh, đen, mực để làm cho hoại sắc. Nếu tỳ-kheo nhận được y mới không dùng ba màu hoặc xanh, hoặc đen, hoặc mực để làm cho hoại sắc mà mặc nguyên y mới, ba-dật-đề.\*[^49]  
 
-#### ĐIỀU 46
+##### ĐIỀU 46
 
 Tỳ-kheo-ni nào, cố ý giết chết mạng sống loài vật, ba-dật-đề.\*[^50]  
 
-#### ĐIỀU 47
+##### ĐIỀU 47
 
 Tỳ-kheo-ni nào, biết nước có trùng mà vẫn uống, ba-dật-đề.\*[^51]  
 
-#### ĐIỀU 48
+##### ĐIỀU 48
 
 Tỳ-kheo-ni nào, cố ý khuấy rầy tỳ-kheo-ni khác, dù chỉ trong chốc lát khiến cho họ không vui, ba-dật-đề.\*[^52]  
 
-#### ĐIỀU 49
+##### ĐIỀU 49
 
 Tỳ-kheo-ni nào, biết tỳ-kheo-ni khác phạm thô tội mà che dấu, ba-dật-đề.\*[^53]  
 
-#### ĐIỀU 50
+##### ĐIỀU 50
 
 Tỳ-kheo-ni nào, biết việc tranh cãi đã như pháp sám hối rồi, sau đó lại khơi dậy, ba-dật-đề.\*[^54]  
 
-#### ĐIỀU 51
+##### ĐIỀU 51
 
 Tỳ-kheo-ni nào, biết là giặc cướp mà làm bạn cùng đi một đường, dù chỉ trong khoảng một xóm, ba-dật-đề.\*[^55]  
 
-#### ĐIỀU 52
+##### ĐIỀU 52
 
 Tỳ-kheo-ni nào nói như vầy: ‹Tôi biết theo pháp Phật dạy, sự hành dâm dục không phải là pháp chướng đạo.› Các tỳ-kheo-ni kia nên can gián tỳ-kheo-ni này rằng: ‹Đại tỷ, chớ nói như vậy, đừng xuyên tạc đức Thế tôn, xuyên tạc đức Thế tôn là không tốt, đức Thế tôn không nói như vậy! Đức Thế tôn dùng vô số phương tiện nói rằng dâm dục là pháp chướng đạo, phạm dâm là pháp chướng đạo.› Khi được các tỳ-kheo-ni kia can gián, mà Tỳ-kheo-ni này kiên trì không bỏ. Các tỳ-kheo-ni nên can gián ba lần cho bỏ việc ấy. Nếu đến ba lần can gián, bỏ thì tốt, không bỏ, ba-dật-đề.\*[^56]  
 
-#### ĐIỀU 53
+##### ĐIỀU 53
 
 Tỳ-kheo-ni nào, biết người nói như vậy mà chưa được tác pháp (giải) tà kiến như thế không bỏ, lại cung cấp các nhu yếu, cùng một yết-ma, cùng một chỗ ở, ba-dật-đề.\*[^57]  
 
-#### ĐIỀU 54
+##### ĐIỀU 54
 
 Tỳ-kheo-ni nào, biết sa-di-ni nói như vầy: ‹Tôi biết theo pháp Phật dạy, sự hành dâm dục không phải là pháp chướng đạo.› Các tỳ-kheo-ni kia can gián sa-di-ni này rằng: ‹Ngươi chớ nói như vậy, đừng xuyên tạc đức Thế tôn, xuyên tạc đức Thế tôn là không tốt. Đức Thế tôn không nói như vậy.› Này sa-di-ni, đức Thế tôn dùng vô số phương tiện nói rằng: ‹Dâm dục là pháp chướng đạo, phạm dâm dục là pháp chướng đạo.› Khi được các tỳ-kheo-ni kia can gián, sa-di-ni này kiên trì không bỏ, các tỳ-kheo-ni kia nên can gián ba lần cho bỏ việc này. Cho đến ba lần can gián, bỏ thì tốt, không bỏ thì các tỳ-kheo-ni kia nên nói với sa-di-ni này rằng: ‹Từ nay về sau cô không phải là đệ tử của Phật, không được đi theo các tỳ-kheo-ni khác. Như các sa-di-ni khác, được phép cùng với tỳ-kheo-ni ngủ hai đêm, nhưng nay ngươi không có sự kiện ấy, ngươi hãy đi ra khỏi chỗ này, không được sống ở đây nữa!› Nếu tỳ-kheo-ni biết sa-di-ni đã bị đuổi như vậy, mà đem về nuôi, cùng chung ngủ nghỉ, ba-dật-đề.\*[^58]  
 
-#### ĐIỀU 55
+##### ĐIỀU 55
 
 Tỳ-kheo-ni nào, khi được can gián như pháp, lại nói rằng: ‹Nay tôi không học điều giới này, cho đến khi nào tôi nạn vấn người trì giới có trí tuệ, ba-dật-đề. Nếu vì sự hiểu biết thì nên nạn vấn.\*[^59]  
 
-#### ĐIỀU 56
+##### ĐIỀU 56
 
 Tỳ-kheo-ni nào, khi tụng giới nói như vầy: ‹Đại tỷ, tụng những giới vụn vặt này có ích lợi gì? Khi tụng các giới này chỉ khiến cho người tu phiền muộn, xấu hổ, hoài nghi.› vì khinh chê giới, ba-dật-đề.\*[^60]  
 
-#### ĐIỀU 57
+##### ĐIỀU 57
 
 Tỳ-kheo-ni nào, khi nghe tụng giới, nói như vầy: ‹Đại tỷ, nay tôi mới biết giới này rút từ giới kinh, mỗi nửa tháng tụng một lần.› Các tỳ-kheo-ni khác biết tỳ-kheo-ni này đã từng ngồi dự tụng giới, hoặc hai, hoặc ba lần, huống nữa là nhiều lần. Tỳ-kheo-ni này không phải do vì không biết, không hiểu, mà hỏi tội. Nếu có phạm tội, nên như pháp xử trị, rồi cộng thêm tội không biết pháp, bảo rằng: ‹Đại tỷ, thật không lợi ích gì cho cô, không có sở đắc tốt đẹp nào cho cô, vì trong khi tụng giới cô không dụng tâm, không nhất niệm, không lắng nghe pháp. Vị ấy là kẻ vô tri, ba-dật-đề.\*[^61]  
 
-#### ĐIỀU 58
+##### ĐIỀU 58
 
 Tỳ-kheo-ni nào, sau khi đã cùng chung yết-ma rồi, sau đó lại nói như vầy: ‹Các tỳ-kheo-ni theo chỗ quen biết riêng, lấy vật của chúng Tăng cho,› ba-dật-đề.\*[^62]  
 
-#### ĐIỀU 59
+##### ĐIỀU 59
 
 Tỳ-kheo-ni nào, khi Tăng đoán sự chưa xong, không giữ dục mà đứng dậy đi ra, ba-dật-đề.\*[^63]  
 
-#### ĐIỀU 60
+##### ĐIỀU 60
 
 Tỳ-kheo-ni nào, đã giữ dục rồi, sau đó tỏ sự bất bình, ba-dật-đề.\*[^64]  
 
-#### ĐIỀU 61
+##### ĐIỀU 61
 
 Tỳ-kheo-ni nào, sau khi nghe những lời tranh cãi của các tỳ-kheo-ni, đem đến nói cho người kia, ba-dật-đề.\*[^65]  
 
-#### ĐIỀU 62
+##### ĐIỀU 62
 
 Tỳ-kheo-ni nào, vì giận hờn không hoan hỷ, đánh tỳ-kheo-ni khác, ba-dật-đề.\*[^66]  
 
-#### ĐIỀU 63
+##### ĐIỀU 63
 
 Tỳ-kheo-ni nào, vì giận hờn không hoan hỷ, dùng tay tát tỳ-kheo khác, ba-dật-đề.\*[^67]  
 
-#### ĐIỀU 64
+##### ĐIỀU 64
 
 Tỳ-kheo-ni nào, vì giận hờn không hoan hỷ vu khống (tỳ-kheo-ni khác) bằng pháp tăng-già-bà-thi-sa không căn cứ, ba-dật-đề.\*[^68]  
 
-#### ĐIỀU 65
+##### ĐIỀU 65
 
 Tỳ-kheo-ni nào, khi nhà vua dòng sát-đế-lợi thủy nghiêu đầu (quán đảnh) chưa ra khỏi cung, vật báu chưa thu cất mà vào cung vua, bước qua khỏi ngạch cửa, ba-dật-đề.\*[^69]  
 
-#### ĐIỀU 66
+##### ĐIỀU 66
 
 Tỳ-kheo-ni nào, tự mình cầm lấy vật báu, hay đồ trang sức bằng vật báu, hoặc bảo người khác cằm nắm, ba-dật-đề. Trừ trong tăng-già-lam, hay nơi ký túc (nghỉ đêm). Nếu ở trong tăng-già-lam hoặc nơi ký túc (nghỉ đêm) mà tự mình cầm nắm hay bảo người cầm vật báu, hay đồ trang sức bằng vật báu nên nghĩ như vầy: ‹Nếu người chủ nhận ra sẽ hoàn lại,› vì nhơn duyên như vậy chứ không chi khác.\*[^70]  
 
-#### ĐIỀU 67
+##### ĐIỀU 67
 
 Tỳ-kheo-ni nào, vào xóm làng phi thời mà không báo cho tỳ-kheo-ni khác, ba-dật-đề.\*[^71]  
 
-#### ĐIỀU 68
+##### ĐIỀU 68
 
 Tỳ-kheo-ni nào, làm giường dây, giường gỗ, chân chỉ nên cao bằng tám ngón tay của Như lai, đã trừ lỗ mộng, để ráp trở lên. Nếu quá, ba-dật-đề, phải hớt bỏ.\*[^72]  
 
-#### ĐIỀU 69
+##### ĐIỀU 69
 
 Tỳ-kheo-ni nào, dùng bông đâu-la miên độn làm giường dây, giường cây, ngọa cụ, tọa cụ, ba-dật-đề.\*[^73]  
 

@@ -1,5 +1,5 @@
 ---  
 title: Trọn bộ Luật Tứ Phần  
 author: Thích Đồng Minh và Thích Đức Thắng  
-dlanguage: vi-VN  
-...  
+language: vi-VN  
+---  
